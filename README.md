@@ -14,3 +14,4 @@
 
  ㅤㅤㅤ <a href= "https://rentry.co/venthyr"> rentry</a> ㅤ $${\color{#93647D}༒︎}$$ ㅤ <a href= "https://pronouns.cc/@venthyr">prns.cc</a> ㅤ $${\color{#99A4A7}༒︎}$$ ㅤ <a href= "https://fluixon.atabook.org">新book</a> ㅤ
 <br clear="left">
+  <img align="center" src="https://file.garden/ZxjQjGQBgH_y3H-n/fghjhgffghgf.png">
