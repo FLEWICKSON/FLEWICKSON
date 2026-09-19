@@ -1,3 +1,7 @@
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=FLEWICKSON&color=603848&label=timeloops+.ᐟ+) 
+</div>
   <img align="center" src="https://file.garden/ZxjQjGQBgH_y3H-n/sdfghjhgfghgfd.png">
   <img align="left" src="https://file.garden/ZxjQjGQBgH_y3H-n/wawwa">
 <div align="left"> ㅤ </div>
